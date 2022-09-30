@@ -1,3 +1,3 @@
 # Kristheamazing2-Prodigy-Hacks
-Prodigy Hacks lol ezz
-More hacks coming soon on 2nd of October
+These are prodigy hacks that can beat the game for you and help you beat any boss and 
+more hacks are coming soon on 2nd of October
